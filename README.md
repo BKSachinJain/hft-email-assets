@@ -1,0 +1,1 @@
+# hft-email-assets
